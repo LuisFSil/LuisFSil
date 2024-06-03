@@ -2,7 +2,7 @@
 
 Meu nome é Luis Felipe
 
-- Estou estudando na Alura
+- Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos
 
@@ -10,6 +10,6 @@ Meu nome é Luis Felipe
 
 00001115418634sp@al.educacao.sp.gov.br  
 
-@luisfelipe2129
+[@luisfelipe2129](https://www.instagram.com/luisfelipe2129?igsh=MTh4MzV3b243OGtqcg==)
 
-![](https://tenor.com/pt-BR/view/hu-tao-gif-23785443#:~:text=Hu%20Tao%20GIF-,%E2%97%8F%20GIF%20SD,-%E2%97%8F%20GIF%20HD)
+![](https://media.tenor.com/zWwNFvLE-2IAAAAi/hu-tao.gif)
