@@ -8,7 +8,8 @@ Meu nome é Luis Felipe
 
   ### Você esntrar em contato comigo 📫
 
-
 00001115418634sp@al.educacao.sp.gov.br  
 
 @luisfelipe2129
+
+![](https://tenor.com/pt-BR/view/hu-tao-gif-23312684#:~:text=Hu%20Tao%20Sticker-,%E2%97%8F%20GIF%20SD,-%E2%97%8F%20GIF%20HD)
