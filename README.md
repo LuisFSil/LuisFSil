@@ -12,4 +12,4 @@ Meu nome é Luis Felipe
 
 @luisfelipe2129
 
-![](https://tenor.com/pt-BR/view/hu-tao-gif-23312684#:~:text=Hu%20Tao%20Sticker-,%E2%97%8F%20GIF%20SD,-%E2%97%8F%20GIF%20HD)
+![](https://tenor.com/pt-BR/view/hu-tao-gif-23785443#:~:text=Hu%20Tao%20GIF-,%E2%97%8F%20GIF%20SD,-%E2%97%8F%20GIF%20HD)
